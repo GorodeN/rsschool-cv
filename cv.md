@@ -1,5 +1,7 @@
 # Roman Shamaluk
 
+![Roman Shamaluk Avatar](https://avatars.githubusercontent.com/u/31999126?v=4)
+
 
 ## Contacts
 
