@@ -1,1 +1,1 @@
-# rsschool-cv
+https://goroden.github.io/rsschool-cv/
